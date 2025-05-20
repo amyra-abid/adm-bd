@@ -1,2 +1,0 @@
-# adm-bd
-amyra abaid
